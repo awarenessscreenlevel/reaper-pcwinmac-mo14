@@ -1,4 +1,4 @@
-# 
+# Principal Reaper plugins para Mac OS | Profesional Reaper plugins para PC Windows. Con mejora de voz y expresiones — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
